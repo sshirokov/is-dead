@@ -15,6 +15,8 @@ Bury me with my money.
 
 Mike Skalnik, as my greatest fake father, should get my television, Jawbone Up, and all Dogecoins that I own.
 
+Katy Shirokov, as the best sister I've ever had, should receive my book collection in its entirety, including any possible electronic copies, along with any remaining beer that I have left behind.
+
 ### Pull Requests
 
 If you want my stuff, send a pull request.
