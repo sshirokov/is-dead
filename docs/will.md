@@ -22,3 +22,10 @@ Katy Shirokov, as the best sister I've ever had, should receive my book collecti
 ### Pull Requests
 
 If you want my stuff, send a pull request.
+
+### Legal Bullshit For Contract Reasons
+
+If a provision of this Agreement is or becomes illegal, invalid or unenforceable in any jurisdiction, that shall not affect:
+
+  * the validity or enforceability in that jurisdiction of any other provision of this Agreement; or
+  * the validity or enforceability in other jurisdictions of that or any other provision of this Agreement.
