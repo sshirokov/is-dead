@@ -11,6 +11,10 @@ Default on any debt that is possible.
 
 Bury me with my money.
 
+### My things
+
+Mike Skalnik, as my greatest fake father, should get my television, Jawbone Up, and all Dogecoins that I own.
+
 ### Pull Requests
 
 If you want my stuff, send a pull request.
