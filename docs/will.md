@@ -13,7 +13,7 @@ Bury me with my money.
 
 ### My things
 
-Mike Skalnik, as my greatest fake father, should get my television, Jawbone Up, and all Dogecoins that I own.
+Mike Skalnik, as my greatest fake father, should get my television, Jawbone Up, all Dogecoins that I own, and ops to #arrakis.
 
 Katy Shirokov, as the best sister I've ever had, should receive my book collection in its entirety, including any possible electronic copies, along with any remaining beer that I have left behind, and ops/dictator status to #a.
 
