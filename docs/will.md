@@ -20,7 +20,7 @@ Bury me with any **remaining money**.
 
 Drew Oliner, as my coolest fake father, should get _all_ my racing gear, and anything that goes fast including PCs.
 
-Mike Skalnik, as my greatest fake father, should get my television, Jawbone Up, and all Dogecoins that I own.
+Mike Skalnik, as my greatest fake father, should get my television, wearables, and all Bitcoin, Dogecoin, and any other cryptocurrency that I own.
 
 Katy Shirokov, as the best sister I've ever had, should receive my book collection in its entirety, including any possible electronic copies, along with any remaining beer that I have left behind, and ops/dictator status to #a.
 
