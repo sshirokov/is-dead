@@ -9,7 +9,12 @@ Default on any debt that is possible.
 
 ### Everything else
 
-Bury me with my money.
+Any funds that remain after my death and final expenses should be used to construct the largest possible statue of
+me fighting a bear with my bare hands and a knife, in the nude, and winning. Ideally cast in bronze, or chiseled from marble as expenses allow. Costs, if any are required, must include **permanent** placement of the monument.
+
+Upon absolute and repeated failure to construct the statue, any money and instruments that could me made fluid should be converted to cash and considered **remaining money**.
+
+Bury me with any **remaining money**. 
 
 ### My things
 
