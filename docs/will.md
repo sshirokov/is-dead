@@ -24,6 +24,7 @@ Mike Skalnik, as my greatest fake father, should get my television, wearables, a
 
 Katy Shirokov, as the best sister I've ever had, should receive my book collection in its entirety, including any possible electronic copies, along with any remaining beer that I have left behind, and ops/dictator status to #a.
 
+Rev. Johnny Healey, the sexiest reverend alive, shall inherit control of #a.
 ### Pull Requests
 
 If you want my stuff, send a pull request.
