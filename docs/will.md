@@ -18,7 +18,7 @@ Bury me with any **remaining money**.
 
 ### My things
 
-Drew Oliner, as my coolest fake father, should get _all_ my racing gear, and anything that goes fast including PCs, Drones, and VR gear.
+Drew Oliner, as my coolest fake father, should get _all_ my racing gear, and anything that goes fast including PCs, Drones, Bikes, and VR gear.
 
 Mike Skalnik, as my greatest fake father, should get my television, wearables, and all Bitcoin, Dogecoin, and any other cryptocurrency that I own.
 
