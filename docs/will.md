@@ -24,6 +24,8 @@ Mike Skalnik, as my greatest fake father, should get my television, wearables, a
 
 Katy Oliner or Katy Shirokov depending on the current name-change status at the time of my death, as the best sister I've ever had, should receive my book collection in its entirety, including any possible electronic copies, along with any remaining beer that I have left behind even though I don't drink at home, my treasure chest and its contents, and ops/dictator status to #a.
 
+Christian Jensen, co-worker at Scribd, shall receive any combination of stock or stock options not to exceed $(700 * the value of Pi * the multiplier of Canadian to US currency at the exact time of death) to the nearest cent in United States currency.
+
 ### Pull Requests
 
 If you want my stuff, send a pull request.
