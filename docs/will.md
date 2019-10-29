@@ -26,6 +26,8 @@ Katy Oliner or Katy Shirokov depending on the current name-change status at the 
 
 Christian Jensen, co-worker at Scribd, shall receive any combination of stock or stock options not to exceed $(700 * the value of Pi * the multiplier of Canadian to US currency at the exact time of death) to the nearest cent in United States currency.
 
+Joshua Cooper, my best friend, shall receive my complete remains, including any and all belongings I am buried with.
+
 ### Pull Requests
 
 If you want my stuff, send a pull request.
