@@ -26,6 +26,8 @@ Katy Oliner or Katy Shirokov depending on the current name-change status at the 
 
 Christian Jensen, co-worker at Scribd, shall receive any combination of stock or stock options not to exceed $(700 * the value of Pi * the multiplier of Canadian to US currency at the exact time of death) to the nearest cent in United States currency.
 
+Kaustav Haldar, co-degenrate at Scribd, shall recieve any left over uni-dentified or illict substances, for analysis! And any software or otherwise sidepojects. 
+
 ### Pull Requests
 
 If you want my stuff, send a pull request.
