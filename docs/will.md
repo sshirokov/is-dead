@@ -14,8 +14,6 @@ me fighting a bear with my bare hands and a knife, in the nude, and winning. Ide
 
 Upon absolute and repeated failure to construct the statue, any money and instruments that could me made fluid should be converted to cash and considered **remaining money**.
 
-Bury me with any **remaining money**. 
-
 ### My things
 
 Drew Oliner, as my coolest fake father, should get _all_ my racing gear, and anything that goes fast including PCs, Drones, Bikes, and VR gear.
